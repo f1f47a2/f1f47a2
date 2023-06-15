@@ -1,4 +1,4 @@
-### Hi [👋](https://github.com/f1f47a23/f1f47a23/blob/main/hi.md)
+### Hi [👋](https://github.com/f1f47a2/f1f47a2/blob/main/hi.md)
 
 <br><br>
 ### 🤵 about me:
@@ -6,7 +6,7 @@
 
 <br><br>
 
-### 👉 Table of Contents [🌎](https://f1f47a23.github.io/)
+### 👉 Table of Contents [🌎](https://f1f47a2.github.io/)
 
 
 
