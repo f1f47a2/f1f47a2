@@ -7,7 +7,7 @@
 <br><br><br><br>
 
 # [-](https://youtu.be/cJMrrzjELlY) [R̴̻̟̳͎̘͐̽͐̄̚](https://youtu.be/Wnagw1bEhBY) ̵̢͇̲̜͚̆̏̆̔͝[ė̶̢̞͙̞̭̀͂̍̆](https://youtu.be/z0ERPknuL1I) ̷̛͇͕̬̯̆̅̓͝ͅ[V̶̠̖̥̩̤͆̑̾̾̋](https://youtu.be/3W7-WBUhPQU) ̶̧̡̜̺͍̓̓̀̾͛[ę̴̛̻̮͎͉̇͒̇͂](https://youtu.be/Ld7rji1H64Y) ̸̘̗͚͕̤̏̌̋͂̓[L̴̘͔̝̦̬̓͋̏̄̀](https://youtu.be/RP4_FRNSPDw) ̸͍̤̤̩͍̀͛̓͗͘[ā̴̢͉̤͎̽̂̚͜͠](https://youtu.be/EQfxLXIR5vE) ̶̮̣͙͖̱͂̍̓̕͘[T̴̢̹̜̹̈̂̎̏̓ͅ](https://youtu.be/QvhlCNw9CJE) ̴͔̰̯̠̬̐̅̈́̐͠[i̸̝̼̫͋̇̍̄̎͜ͅ](https://youtu.be/LtU1PwOCVf4) ̷̢̣̦̜̹́̿͑̂̎[o̷̢̬͉͎̯̓͋̈́͋͘](https://youtu.be/mhA3Z2w6Crs) ̶͇̼̰̘́̾̒͘͘ͅ[N̵̙̩̯͇͐͆̓͂̆͜](https://youtu.be/Y7EZBP9j7h0) [-](https://youtu.be/C-e_nuLltT4) <sub>[:](https://youtu.be/BMzYUPx5oXo)</sub> [-](https://youtu.be/OhKBwCsCLjw) <sub>[.](https://youtu.be/pFS4zYWxzNA) [@](https://youtu.be/fe6dyzj2Lyo)</sub> 
-[![Image](https://github.com/f1f47a23/f1f47a23/blob/main/img/agent-smith-2nd-revelation.jpg)](https://youtu.be/JrBdYmStZJ4)
+[![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/agent-smith-2nd-revelation.jpg)](https://youtu.be/JrBdYmStZJ4)
 
 <br><br><br><br>
 
@@ -134,7 +134,7 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 <br><br>
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)<br>
 
-[![Image](https://github.com/f1f47a23/f1f47a23/blob/main/img/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
+[![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/mareux.jpg)](https://youtu.be/SlHSr-6ji0w)
 <br><br>
 ENG-101 
   - [🌎](https://www.youtube.com/@Englishwithjennifer) [🌎](https://www.youtube.com/@ShawEnglishOnline) [🌎](https://www.youtube.com/@englishforyoutv) [🌎](https://www.youtube.com/@engvidEmma) [🌎](https://www.youtube.com/@VirtuallyFluentenglish) 🔥 [🌎](https://www.youtube.com/@SpeakEnglishWithVanessa/) [🌎](https://www.youtube.com/@KateEnglish) [🌎](https://www.youtube.com/@EnglishWithVeronikaMark) [🌎](https://www.youtube.com/@EnglishClass101) [🌎](https://www.youtube.com/@englishforyoutv) 🔥
@@ -145,11 +145,11 @@ ENG-101
   - [🌎](https://www.youtube.com/@DreamingEnglish) [🌎](https://www.youtube.com/@GoNaturalEnglish) [🌎](https://www.youtube.com/@podEnglish) [🌎](https://www.youtube.com/@englishlistening8557) [🌎](https://www.youtube.com/@BusyBeavers) 🔥 [🌎](https://www.youtube.com/@DailyEnglishConversation) [🌎](https://www.youtube.com/@emekliyim) [🌎](https://www.youtube.com/@7ESLLearningEnglish) [🌎](https://www.youtube.com/@ESLTeacherTom) [🌎](https://www.youtube.com/@teacherprix) 🔥
   - [🌎](https://www.youtube.com/@EnglishwithMax) [🌎]() [🌎]() [🌎]() [🌎]() 🔥 [🌎]() [🌎]() [🌎]() [🌎]() [🌎]() 🔥 
 <br><br>
-[![Image](https://github.com/f1f47a23/f1f47a23/blob/main/img/popcorn-panda.gif)](https://youtu.be/7oCPuvwFeI0)
+[![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/popcorn-panda.gif)](https://youtu.be/7oCPuvwFeI0)
 
-['](https://youtu.be/enYdAxVcNZA)[SSS](https://youtu.be/g4mHPeMGTJM)[HH](https://youtu.be/ptQKtgtQfrw)[h](https://youtu.be/KcHa1bGHXQI)[h](https://youtu.be/8Ptla_b0vJ4)[h](https://youtu.be/uQ91gygKWFc)[h](https://youtu.be/-iIdCfVz-GA)[h](https://youtu.be/pNfISOGw3Jk)[h](https://youtu.be/Ld55uTTZyWU)['](https://www.youtube.com/shorts/utITqm-76Is) [![Image](https://github.com/f1f47a23/f1f47a23/blob/main/img/GigiDAgostino-BlaBlaBla.gif)](https://youtu.be/g6t8g6ka4W0)
+['](https://youtu.be/enYdAxVcNZA)[SSS](https://youtu.be/g4mHPeMGTJM)[HH](https://youtu.be/ptQKtgtQfrw)[h](https://youtu.be/KcHa1bGHXQI)[h](https://youtu.be/8Ptla_b0vJ4)[h](https://youtu.be/uQ91gygKWFc)[h](https://youtu.be/-iIdCfVz-GA)[h](https://youtu.be/pNfISOGw3Jk)[h](https://youtu.be/Ld55uTTZyWU)['](https://www.youtube.com/shorts/utITqm-76Is) [![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/GigiDAgostino-BlaBlaBla.gif)](https://youtu.be/g6t8g6ka4W0)
 
-[![Image](https://github.com/f1f47a23/f1f47a23/blob/main/img/BladeRunner2049.jpg)](https://youtu.be/lP7_3BCUB90)
+[![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/BladeRunner2049.jpg)](https://youtu.be/lP7_3BCUB90)
 [-](https://youtu.be/BGitsrBCw-8) [-](https://youtu.be/PFA90OVs9IE)<br>
 [+](https://youtu.be/xUBOIpnKYn8) [+](https://youtu.be/Jm4UAWbNYrA) [+](https://youtu.be/2KatppPMjPc) [+](https://youtu.be/g6u33j_T5VQ) [+](https://youtu.be/VuV2c-6js8w) [+](https://youtu.be/4PvhG5P9wt4) [+](https://youtu.be/I7zMKR9b-04) [+](https://youtu.be/dYJAtE2wiPI) [+](https://youtu.be/9ELDvxu9wbg)<br> 
 [.](https://youtu.be/nBglxpwXA70) [.](https://youtu.be/Q9SQ6yEAe5Y)
