@@ -27,7 +27,7 @@ P . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
 I . . . . . . . . . . . . <sup>[🐸](https://youtu.be/o5EKuIus-oE)</sup>[👁️⃤](https://youtu.be/a-CqMtZUtvw) <sup>ʎɔɐɹᴉdsuoƆ ʇɟǝ˥ plɐuopɔW ʎɹɹɐ˥</sup> <br>
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
-R . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
+[R](https://youtu.be/m1h8WmYO7xA) . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
 
 
 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . <br>
@@ -39,7 +39,7 @@ S . . . . . . . . . . . . . . . . . . . . . [👁️⃤](https://youtu.be/Qw_yV5
 <br><br><br><br>
 [¿ɔᴉʇɐunl ɐ ∩ ɹ](https://youtu.be/xVANRroxuOo) - [¿ƃuᴉoƃ ƃuᴉuǝʞɐʍɐ ɹnoʎ sᴉ ʍoH](https://youtu.be/AJnY2oytnX4) - [ǝ](https://youtu.be/m7bSYG0qL3Y)ɔ[u](https://youtu.be/-HhoL_9O688)ɐʇ[s](https://youtu.be/vbrOFFMRS78)ᴉ[s](https://youtu.be/zQjGRLdAqZg)ǝ[ɹ](https://www.onenewspage.com/video/20230515/15766913/BEING-AWAKE-YOUR-NOT-ALONE!.htm) [┴ ](https://youtu.be/RM37uJ4Gg-k) [ɹ](https://www.reddit.com/r/copypasta/comments/pxdfdj/to_all_my_friends_out_there_who_know_whats_really/) [∩](https://americasbestpics.com/picture/lonely-but-not-alone-on-awakening-s-tough-road-to-CNuO8qg99)
 <br><br><br><br>
-O . . . . . . . . . . . . . . . . . . . . . [ԀƎƎ˥S∀ ⅄∀┴S](https://youtu.be/8HtBz_b_d9s) . . . . [⅄Ǝ8O](https://youtu.be/FfRgBTsI0io) . . . . [🏃‍♂️](https://t.me/socialmedia42)<br>
+[O](https://youtu.be/SrKGMtcU4mg) . . . . . . . . . . . . . . . . . . . . . [ԀƎƎ˥S∀ ⅄∀┴S](https://youtu.be/8HtBz_b_d9s) . . . . [⅄Ǝ8O](https://youtu.be/FfRgBTsI0io) . . . . [🏃‍♂️](https://t.me/socialmedia42)<br>
 [F](https://sadhgurujvquotes.com/quote/5339) . . . . . . . . . . . . . . . . . . . . . [∀IpƎW](https://youtu.be/b0pxnTXECwo) W∀Ǝɹ┴S[NI∀W](https://youtu.be/iz2DV7FWdds?t=218) . . . . [👀](https://youtu.be/bTpt5JH4TWs) . . . . [🪖](https://youtu.be/_hBjxVNA0i4)<br>
 
 [👀](https://youtu.be/DPZOi8EgcYM?t=119)s uɐɔ ʇɐɥʇ [1 ʇoƃ ev'I](https://youtu.be/PQbtjzBCjv0) . . . 
