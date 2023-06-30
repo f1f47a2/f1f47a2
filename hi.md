@@ -49,7 +49,10 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br><br>
 
 
+[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ǝɔuɐɹouƃᴉ](https://youtu.be/Sneo7yuIYFo) ɹ⅄ ɟo pǝɯɐɥsɐ ǝq
+¿[sᴉ](https://youtu.be/FQKdAodINvY) ʎllɐǝɹ [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ǝɥʇ ʇɐɥM
 
+<br><br><br>
 <br><br><br>
  😭😭😭😭😭😭😭😭(ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ 😭😭😭😭😭😭😭😭<br>
  
