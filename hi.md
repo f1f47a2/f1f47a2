@@ -49,10 +49,14 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br><br>
 
 
-[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) [ɹ⅄](https://youtu.be/zfZR3sz1vuE) ⅋ [ǝɔuɐɹouƃᴉ](https://youtu.be/Sneo7yuIYFo) [ɹ⅄](https://youtu.be/57LOJGr2r5M) [ɟo](https://youtu.be/zuwW9IVwZ0U) [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY)
-¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) [┴](https://youtu.be/bHSoudDyNYo) ʇɐɥM
+[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ ǝɔuɐɹouƃᴉ [ɹ⅄](https://youtu.be/57LOJGr2r5M) ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY)
+¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ┴ ʇɐɥM
 
 <br><br><br>
+# ✦°• ΉӨЩ IƧ YЯ ΛЩΛKΣПIПG GӨIПG? •°✦ <br>
+[✦](https://youtu.be/zuwW9IVwZ0U) [✦](https://youtu.be/zfZR3sz1vuE) [✦](https://youtu.be/bHSoudDyNYo) [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 [✦]() [✦]() [✦]() [✦]() [✦]() 😍 
+
+
 <br><br><br>
  😭😭😭😭😭😭😭😭(ǝǝɟɐɔW˙uɥoſ) dǝǝɥs ʎq pǝpuoɹɹns ɯ,I ¡ʞɔnɟ 😭😭😭😭😭😭😭😭<br>
  
