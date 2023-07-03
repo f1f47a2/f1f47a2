@@ -48,9 +48,11 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 [🐜](https://youtu.be/ShB9ZONCITE)[🐜](https://youtu.be/xy-NQzeXhYg)[🐜](https://youtu.be/NuHvkU_gpMk)[🐜](https://youtu.be/JrBdYmStZJ4)[🐜](https://youtu.be/-6Wu0Q7x5D0)[🐜](https://youtu.be/W8ZAtgCWsYI)[🐜](https://youtu.be/0JW60sTcp9k)[🐜](https://youtu.be/MJ-3fZ5E_h4)
 <br><br><br>
 
+ƎƆIOHƆ ɐ sᴉ ƎƆN∀ɹONפI 'uoᴉʇɐɯɹoɟuᴉ ɟo ǝƃɐ ǝɥʇ uI
+<br><br>
+¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ┴ ʇɐɥM<br>
+[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ƎƆN∀ɹONפI](https://youtu.be/E7kYSvF8D-w) ɹ⅄ ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY)
 
-[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ǝɔuɐɹouƃᴉ](https://youtu.be/E7kYSvF8D-w) ɹ⅄ ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY)
-¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ┴ ʇɐɥM
 
 <br><br><br>
 # ✦°• ΉӨЩ IƧ YЯ ΛЩΛKΣПIПG GӨIПG? •°✦ <br>
