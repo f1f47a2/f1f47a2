@@ -100,7 +100,7 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 
 <br><br>
 ### 太極拳 [☯](https://www.youtube.com/shorts/aN_h3Rqjj6k) [☯](https://youtu.be/g0LkJ2bv1rg) [☯](https://youtu.be/JywRX-ZGmW4) [☯](https://youtu.be/jXGhcdhdMGs) [☯](https://youtu.be/RIn2ksyivT8) 🔥 [☯](https://youtu.be/RPK82Ptn14k) [☯](https://youtu.be/CE9vH3vtrr4) [🥋](https://youtu.be/g2c_-9kIjyU) [🥋](https://youtu.be/eCbmg4Zt_QA) [🥋](https://youtu.be/qpG__DSvAyk)
-  - <sub>[☯](https://www.youtube.com/shorts/2xVQGFyNjcE) [☯](https://www.youtube.com/shorts/e5y8NZ3yptQ) [☯](https://www.youtube.com/shorts/i4dFRocILxs) [☯](https://www.youtube.com/shorts/n_FaEVP6_UY) [☯](https://www.youtube.com/shorts/J0y0qX6fBtk) 🔥 [🥋](https://youtu.be/S9ExISEbBMQ) [☯](https://www.youtube.com/shorts/e7MOVFBaszc) [☯](https://www.youtube.com/shorts/C5K_qRlzFIA) [☯](https://www.youtube.com/shorts/8G0jdXpK-Jo) [☯](https://www.youtube.com/shorts/oSALQ4HMFpY) 🔥 </sub>
+  - <sub>[☯](https://www.youtube.com/shorts/2xVQGFyNjcE) [☯](https://www.youtube.com/shorts/e5y8NZ3yptQ) [☯](https://www.youtube.com/shorts/i4dFRocILxs) [☯](https://www.youtube.com/shorts/n_FaEVP6_UY) [☯](https://www.youtube.com/shorts/J0y0qX6fBtk) 🔥 [🥋](https://youtu.be/S9ExISEbBMQ) [☯](https://www.youtube.com/shorts/e7MOVFBaszc) [☯](https://www.youtube.com/shorts/C5K_qRlzFIA) [☯](https://www.youtube.com/shorts/8G0jdXpK-Jo) [☯](https://www.youtube.com/shorts/oSALQ4HMFpY) 🔥 [☯](https://www.youtube.com/shorts/FfjyC7eky04) </sub>
 
 <br><br>
 
