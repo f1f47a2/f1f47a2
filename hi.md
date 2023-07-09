@@ -222,6 +222,8 @@ lɐɔol oƃ ʎldɯᴉs ʎɹǝʌ ᄅ ǝʌɐɥ ∩ 'plɹoʍ ┴ oʇuᴉ ʞɔɐq ʎ
 
 ƃuᴉɥʇou ʍouʞ I ʇɐɥʇ sᴉ ʍouʞ I llɐ
 
+SɹOOp ┴ ɹ uǝǝʍʇǝq uI ⅋ 'NMONʞN∩ sƃuᴉɥ┴ ⅋ 'uʍouʞ sƃuᴉɥ┴ ɹ ǝɹǝɥ┴
+
 ʇɹɐd pɹɐɥ ┴ sᴉ ɥʇnɹʇ ┴ llǝʇ ᄅ ǝƃɐɹnoɔ ┴ ƃuᴉʌɐɥ 'ǝldɯᴉs sᴉ ɥʇnɹʇ ┴ ƃuᴉʍouʞ
 
 ʇuɐɹouƃᴉ ∩ sǝʞɐɯ ʇɐɥʍ sᴉ ɥʇnɹʇ ┴ ʍouʞ ᄅ ƃuᴉʇuɐʍ ʇou 
