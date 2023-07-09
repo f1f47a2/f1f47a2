@@ -202,7 +202,6 @@ ENG-101
 
 ### oʇʇoɯ
 
-```
 ƃuᴉɥʇou ƃuᴉop ʎsnq ƃuᴉǝq uɐɥʇ ɹǝʇʇǝq sᴉ ƃuᴉɥʇou ƃuᴉop
 
 ɹǝɥʇo ɥɔɐǝ ʇnoɥʇᴉʍ ǝʌᴉʌɹns ʇouuɐɔ ƃuɐʎ puɐ uᴉʎ ǝɔuᴉs 'uǝʞoɹq ǝq ʇouuɐɔ ǝɟᴉl ɟo ǝlɔɹᴉɔ ┴
@@ -257,7 +256,7 @@ dooooɥʍ 'puoɔǝsoɹɔᴉɯ ɐ uᴉ oɹǝz ƃuᴉʞɔnɟ ᄅ oƃ llᴉʍ uᴉo
 
 ¡ǝʌɐlS ¿∩ ǝɹɐp ʍoɥ 
 
-```
+
 
 
 
