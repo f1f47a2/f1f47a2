@@ -222,7 +222,7 @@ lɐɔol oƃ ʎldɯᴉs ʎɹǝʌ ᄅ ǝʌɐɥ ∩ 'plɹoʍ ┴ oʇuᴉ ʞɔɐq ʎ
 
 ƃuᴉɥʇou ʍouʞ I ʇɐɥʇ sᴉ ʍouʞ I llɐ
 
-SɹOOp ┴ ɹ uǝǝʍʇǝq uI ⅋ 'NMONʞN∩ sƃuᴉɥ┴ ⅋ 'uʍouʞ sƃuᴉɥ┴ ɹ ǝɹǝɥ┴
+[SɹOOp](https://youtu.be/BsmFixJuBdI) ┴ ɹ uǝǝʍʇǝq uI ⅋ 'NMONʞN∩ sƃuᴉɥ┴ ⅋ 'uʍouʞ sƃuᴉɥ┴ ɹ ǝɹǝɥ┴
 
 ʇɹɐd pɹɐɥ ┴ sᴉ ɥʇnɹʇ ┴ llǝʇ ᄅ ǝƃɐɹnoɔ ┴ ƃuᴉʌɐɥ 'ǝldɯᴉs sᴉ ɥʇnɹʇ ┴ ƃuᴉʍouʞ
 
