@@ -138,6 +138,12 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 
 <br><br><br><br><br>
 
+🅦🅐🅝🅣 ➋ 🅗🅔🅐🅡 🅣 🅣🅡🅤🅣🅗? [ssǝlǝsn ǝɯoɔǝq ǝʌɐɥ ∩](https://youtu.be/ee3bld4lTG0)  '∩ pǝǝu ɹǝƃuol ou ʎǝɥ┴
+ʇǝuɐld ┴ ƃuᴉʇsǝɟuᴉ פ∩q ɐ ʇsnɾ ɹ ∩
+
+<br><br><br><br><br>
+
+
 [🂡](https://youtu.be/agrd7yYQSzU) [🂡](https://youtu.be/6Q4HE06tlOY) [🂡](https://youtu.be/JpvW1T7hXjo) [🂡](https://youtu.be/_mrNhIxOGzw) [🂡](https://youtu.be/ahwJF5AcsGA) [🂡](https://youtu.be/C7jy9VGuqEE) [🂡](https://youtu.be/7ofzSK3Qy2s) [🂡](https://youtu.be/IjdBaGy4boQ) [🂡](https://youtu.be/48uT6b0gFD0) [🂡](https://youtu.be/pLgEs6hjbGg) [🂡](https://youtu.be/I4LoGhyb2uc) [🂡](https://youtu.be/ctzrxyWIabY) [🂡](https://youtu.be/mVnA5f7i9BE) [🂡](https://youtu.be/eH0tFJmR4gw) [🂡](https://youtu.be/5h5cwCOWCOg) [🂡](https://youtu.be/vwbryjr2BKg) [🂡](https://youtu.be/le_ax6CKpZI) [🂡](https://youtu.be/pvgCuYH9VOI) [🂡](https://youtu.be/9n23ISvkbFQ) [🂡](https://youtu.be/6rGBqovePfY) [🂡](https://youtu.be/FZlm1ledK-I) [🂡](https://youtu.be/Y05sLTM90Go) [🂡](https://youtu.be/BekdaUPc0xk) [🂡](https://youtu.be/6uOlmC92kU4)
 <br><br>
 [![Lifecycle:Retired](https://img.shields.io/badge/Lifecycle-Retired-d45500)](https://youtu.be/cdFIgYXHQQ8?t=180)<br>
@@ -164,6 +170,7 @@ ENG-101
 <br><br><br>
 [🅘 🅗🅥 🅐 🅓🅡🅔🅐🅜](https://youtu.be/65xLByzT1l0) [ǝsdɐlloɔ](https://youtu.be/6QzDZ1mWS-U) [spᴉɯɐɹʎd](https://youtu.be/OwXV_BkS0bM) [┴](https://youtu.be/8bh8lRjn-DU) [ǝǝs](https://youtu.be/1qSD7eEK9og) [ᄅ](https://youtu.be/fQ0OsspFhWg) [![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/TheAmbientalistBetelgeuse.jpg)](https://youtu.be/TNqFV7LrG7U)
 <br><br><br>
+
 
 ### relaxing background music 2 listen while U write
 <sub>*channels proposed by youtube AI engine*</sub>
