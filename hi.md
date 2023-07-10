@@ -138,7 +138,8 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 
 <br><br><br><br><br>
 
-🅦🅐🅝🅣 ➋ 🅗🅔🅐🅡 🅣 🅣🅡🅤🅣🅗? [ssǝlǝsn ǝɯoɔǝq ǝʌɐɥ ∩](https://youtu.be/ee3bld4lTG0)  '∩ pǝǝu ɹǝƃuol ou ʎǝɥ┴
+🅦🅐🅝🅣 ➋ 🅗🅔🅐🅡 🅣 🅣🅡🅤🅣🅗? [ssǝlǝsn ǝɯoɔǝq ǝʌɐɥ ∩](https://youtu.be/ee3bld4lTG0)<br>
+'∩ pǝǝu ɹǝƃuol ou ʎǝɥ┴<br>
 ʇǝuɐld ┴ ƃuᴉʇsǝɟuᴉ פ∩q ɐ ʇsnɾ ɹ ∩
 
 <br><br><br><br><br>
