@@ -140,7 +140,7 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 ∩ ʎǝH<br>
 🅦🅐🅝🅝🅐 🅗🅔🅐🅡 🅣 🅣🅡🅤🅣🅗?<br>
 ʇǝuɐld ┴ ƃuᴉʇsǝɟuᴉ [פ∩q](https://youtu.be/qoyyeUKxbuY) ɐ ʇsnɾ ɹ ∩<br>
-[ssǝlǝsn ǝɯoɔǝq ǝʌɐɥ ∩](https://youtu.be/ee3bld4lTG0)<br>
+[ssǝlǝsn](https://youtu.be/ee3bld4lTG0) ǝɯoɔǝq ǝʌɐɥ ∩<br>
 '∩ [pǝǝu](https://youtu.be/mP-ehJO-940) ɹǝƃuol ou ʎǝɥ┴<br>
 
 <br><br>
