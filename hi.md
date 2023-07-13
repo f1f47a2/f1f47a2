@@ -139,9 +139,9 @@ dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ 
 
 ∩ ʎǝH<br>
 🅦🅐🅝🅝🅐 🅗🅔🅐🅡 🅣 🅣🅡🅤🅣🅗?<br>
-ʇǝuɐld ┴ ƃuᴉʇsǝɟuᴉ [פ∩q](https://youtu.be/qoyyeUKxbuY) ɐ ʇsnɾ ɹ ∩<br>
+ʇǝuɐld ┴ ƃu[ᴉ](https://youtu.be/v-aT5sXnGgc)ʇ[s](https://youtu.be/ap9GGmEkPL0)ǝ[ɟ](https://youtu.be/hfWHf_nub1U)u[ᴉ](https://youtu.be/FQPQsUiaaEc) [פ∩q](https://youtu.be/qoyyeUKxbuY) ɐ ʇsnɾ ɹ ∩<br>
 [ssǝlǝsn](https://youtu.be/ee3bld4lTG0) ǝɯoɔǝq ǝʌɐɥ ∩<br>
-'∩ [pǝǝu](https://youtu.be/mP-ehJO-940) ɹǝƃuol ou ʎǝɥ┴<br>
+'∩ [pǝǝu](https://youtu.be/mP-ehJO-940) ɹǝƃuol ou [ʎǝɥ┴](https://youtu.be/Sneo7yuIYFo)<br>
 
 <br><br>
 
