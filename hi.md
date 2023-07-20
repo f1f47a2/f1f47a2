@@ -73,7 +73,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
 <br><br>
 
 
- [L](https://youtu.be/IJffBsSg1kU) . . . . . . . . . . [ɹɐǝʎ ɹǝʇɟɐ ɹɐǝʎ ɹǝʇɟɐ ɹɐǝʎ](https://youtu.be/h9YlIG9ofGM) . . . . . . . . . . .<br>
+ [L](https://youtu.be/IJffBsSg1kU) <sub>[L](https://youtu.be/jUUB96c6EpY)</sub> . . . . . . . . . . [ɹɐǝʎ ɹǝʇɟɐ ɹɐǝʎ ɹǝʇɟɐ ɹɐǝʎ](https://youtu.be/h9YlIG9ofGM) . . . . . . . . . . .<br>
  . . . . . . . . . . . . . . . . . . ɹǝʌo ⅋ ɹǝʌo ⅋ ɹǝʌo [🛖](https://youtu.be/wBV_PQVDONs) . . . . . . .<br>
  [I](https://youtu.be/X0W6CX-uHhk) . . . . . . . . . . [ƎƆI˥OԀ . . . . . . . ɹ∀ƎℲ . . . . . . . ˥Oɹ┴NOƆ . . . . . . . SpIW∀ɹ⅄Ԁ](https://youtu.be/vAeO-odY6zQ) . . . . . . .<br>
  . . . . . . . . . . .  [RM](https://youtu.be/aN9ssrVTkk8) [+](https://youtu.be/cnQ9n8puymE) [+](https://youtu.be/CWnk0FAYG9A) [+](https://youtu.be/a7IDA_YMLas)  . . . . . . . . . . . <br>
