@@ -46,13 +46,13 @@ S . . . . . . . . . . . . . . . . . . . . . [👁️⃤](https://youtu.be/Qw_yV5
 [O](https://youtu.be/SrKGMtcU4mg) . . . . . . . . . . . . . . . . . . . . . [ԀƎƎ˥S∀ ⅄∀┴S](https://youtu.be/8HtBz_b_d9s) . . . . [⅄Ǝ8O](https://youtu.be/FfRgBTsI0io) . . . . [🏃‍♂️](https://t.me/socialmedia42)<br>
 [F](https://sadhgurujvquotes.com/quote/5339) . . . . . . . . . . . . . . . . . . . . . [∀IpƎW](https://youtu.be/b0pxnTXECwo) W∀Ǝɹ┴S[NI∀W](https://youtu.be/iz2DV7FWdds?t=218) . . . . [👀](https://youtu.be/bTpt5JH4TWs) . . . . [🪖](https://youtu.be/_hBjxVNA0i4)<br>
 
-[👀](https://youtu.be/DPZOi8EgcYM?t=119)s uɐɔ ʇɐɥʇ [1 ʇoƃ ev'I](https://youtu.be/PQbtjzBCjv0) . . . 
+[👀ɔ](https://youtu.be/DPZOi8EgcYM?t=119) uɐɔ ʇɐɥʇ [1 ʇoƃ ev'I](https://youtu.be/PQbtjzBCjv0) . . . 
 <br><br><br><br>
-sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ sʇuɐ ǝɥʇ llɐ llᴉɥʇuɐ ǝɥʇ uᴉ<br>
+sɹǝɥʇo uɐɥʇ = > ɹ s🐜 ǝɯos ʇnq '= ɹ s🐜 ┴ llɐ llᴉɥ🐜 ┴ uᴉ<br>
 [🐜](https://youtu.be/ShB9ZONCITE) [🐜](https://youtu.be/xy-NQzeXhYg) [🐜](https://youtu.be/NuHvkU_gpMk) [🐜](https://youtu.be/JrBdYmStZJ4) [🐜](https://youtu.be/-6Wu0Q7x5D0) [🐜](https://youtu.be/W8ZAtgCWsYI) [🐜](https://youtu.be/0JW60sTcp9k) [🐜](https://youtu.be/MJ-3fZ5E_h4)
 <br><br><br>
 
-ƎƆIOHƆ ɐ sᴉ ƎƆN∀ɹONפI 'uoᴉʇɐɯɹoɟuᴉ ɟo ǝƃɐ ǝɥʇ uI - 
+ƎƆIOHƆ ɐ sᴉ ƎƆN∀ɹONפI 'uoᴉʇɐɯɹoɟuᴉ ɟo ǝƃɐ ┴ uI - 
 [ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ƎƆN∀ɹONפI](https://youtu.be/E7kYSvF8D-w) ɹ⅄ ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY) - ¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ┴ ʇɐɥM
 
 
@@ -78,7 +78,7 @@ sɹǝɥʇo uɐɥʇ slɐnbǝ ǝɹoɯ ǝɹɐ sʇuɐ ǝɯos ʇnq 'slɐnbǝ ǝɹɐ s
  [I](https://youtu.be/X0W6CX-uHhk) . . . . . . . . . . [ƎƆI˥OԀ . . . . . . . ɹ∀ƎℲ . . . . . . . ˥Oɹ┴NOƆ . . . . . . . SpIW∀ɹ⅄Ԁ](https://youtu.be/vAeO-odY6zQ) . . . . . . .<br>
  . . . . . . . . . . .  [RM](https://youtu.be/aN9ssrVTkk8) [+](https://youtu.be/cnQ9n8puymE) [+](https://youtu.be/CWnk0FAYG9A) [+](https://youtu.be/a7IDA_YMLas)  . . . . . . . . . . . <br>
 <br>[E](https://youtu.be/hrQNG04CPVk)<br><br>[S](https://youtu.be/9Ems6XK6T7U)<br><br><br>
-dǝǝɥs ɹood ǝɥʇ oʇ ɥʇnɹʇ ǝɥʇ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ ǝɔᴉʌɹǝS ɟo sɯɹǝ┴ s,ǝqn┴no⅄ ƃuᴉʇɐloᴉʌ ɹoɟ pǝʌoɯǝɹ uǝǝq sɐɥ oǝpᴉʌ sᴉɥ┴<br><br>
+dǝǝɥs ɹood ┴ ᄅ ɥʇnɹʇ ┴ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ ǝɔᴉʌɹǝS ɟo sɯɹǝ┴ s,ǝqn┴no⅄ ƃuᴉʇɐloᴉʌ 4 pǝʌoɯǝɹ uǝǝq sɐɥ oǝpᴉʌ sᴉɥ┴<br><br>
 [🐜](https://youtu.be/NuHvkU_gpMk) [🐑](https://youtu.be/u743ovRYSdo) [🐜](https://youtu.be/yRVFiUbHo5c) [🐑](https://youtu.be/-1-3kADrPXY) [🐜](https://youtu.be/fU0e0xOlxso) 🔥 [🐑](https://www.youtube.com/shorts/RC_c2tQKCnA) [🐜](https://youtu.be/2AD-4vytGf0) [🐑](https://youtu.be/VLVb5jPjhe0) [🐜](https://youtu.be/xdTVKlFt2X4) [🐑](https://youtu.be/XIxsZlYjzGY) 🔥 [🐜](https://youtu.be/NJhL6Ues_tQ) [🐑](https://www.youtube.com/shorts/_VoEiEHzV9w) [🐜](https://youtu.be/t8-43XC5ZL4) [🐑](https://www.youtube.com/shorts/ssI4wfMmzJM) [🐜](https://www.youtube.com/shorts/xGjl1oa4gdY) 🔥 [🐑](https://youtu.be/uDv6cSEykEw) [🐜](https://youtu.be/iv-C4CVGk28) [🐑](https://youtu.be/9v_ScepxCvI) [🐜](https://youtu.be/3DfBUNPcQts) [🐑](https://www.youtube.com/shorts/s_EQmxVT2mw) 🔥 [🐜](https://youtu.be/tDn7EyI-E48) [🐑](https://youtu.be/WscYTy3qRZg) [🐜](https://youtu.be/-5oFpn8TLfA) [🐑](https://www.youtube.com/shorts/OuNDn9QgvIA) [🐜](https://youtu.be/cJ8JGPVCJxk) 🔥 
 <br><br>
 <br><br>
