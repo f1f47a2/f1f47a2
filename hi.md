@@ -149,7 +149,7 @@ dǝǝɥs ɹood ┴ ᄅ ɥʇnɹʇ ┴ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ ǝɔ�
 
 <br><br>
 
-[┣▇▇](https://youtu.be/MEhSk71gUCQ) 𝟷𝟽'𝟻 [𝟺𝙻𝙻](https://youtu.be/ZLmXwJLw_-I) 48𝟶𝚞𝟽 [𝙲𝟶𝙽𝟽𝚁𝟶𝙻](https://youtu.be/GMI1OYUv4Qo) [▇▇═─](https://www.youtube.com/shorts/5Fru4Ut4MyE) [💦](https://www.youtube.com/shorts/DpKCR1YYtoY)
+[┣▇▇](https://youtu.be/MEhSk71gUCQ) 𝟷𝟽'𝟻 [𝟺𝙻𝙻](https://youtu.be/ZLmXwJLw_-I) 48[☯](https://youtu.be/g0LkJ2bv1rg)[☯](https://youtu.be/gXQ32ooefxA)𝟽 [𝙲𝟶𝙽𝟽𝚁𝟶𝙻](https://youtu.be/GMI1OYUv4Qo) [▇▇═─](https://www.youtube.com/shorts/5Fru4Ut4MyE) [💦](https://www.youtube.com/shorts/DpKCR1YYtoY)
 
 <br><br>
 
