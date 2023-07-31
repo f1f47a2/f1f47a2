@@ -18,7 +18,7 @@
 [E](https://youtu.be/fkgu4q5BKzM) . . . [🐜](https://youtu.be/YozsViVwNz4) [🐜](https://youtu.be/NGOrtvvdl6A) ¿[uɐɯnɥ](https://youtu.be/xHkCuxy1BrM?t=85) ɹ ∩ [ʞuᴉɥʇ](https://youtu.be/MkTCIvM3uQc?t=77) ∩ [⚥](https://youtu.be/T-3aJ7TjQMo) <sup>[🙈](https://youtu.be/is4Z1PrMb9w)</sup> [☀️](https://youtu.be/F9XCAbwjbN8) <sub>[💡](https://youtu.be/YpL7Bb3C8QQ)</sub> . . . [🐑](https://youtu.be/Gdn-mHIUk_s) <sup>[🐑](https://youtu.be/__Vd1i10FqU)</sup> [🐑](https://youtu.be/PFJRjVy5HdY) <sub>[🐑](https://youtu.be/kZgE_sUrXFY?t=94)</sub> [🐑](https://youtu.be/pEdz9LONiQw) <sup>[🐑](https://youtu.be/MEhSk71gUCQ)</sup>. . . . . . . . . . . . . . . . . .<br>
 <br><br><br><br>
 
-ƃuᴉʌᴉɹɹɐ sǝɔǝᴉd ┴ ɥʇᴉʍ ɔᴉɐsoɯ ┴ ǝʇǝldɯoɔ ⅋ sɹǝʍsuɐ ┴ ǝʌᴉǝɔǝɹ :[dǝʇs pɹƐ](https://youtu.be/JB6Fsl0yV2A?t=24)<br>
+ƃuᴉɯoɔ sǝɔǝᴉd ┴ ɥʇᴉʍ ɔᴉɐsoɯ ┴ ǝʇǝldɯoɔ ⅋ sɹǝʍsuɐ ┴ ǝʌᴉǝɔǝɹ :[dǝʇs pɹƐ](https://youtu.be/JB6Fsl0yV2A?t=24)<br>
 uǝʇsᴉl 'uᴉ ǝunʇ ⅋ suoᴉʇsǝnb ┴ ɟlǝsɹʎ ʞsɐ 'ʞuᴉɥʇ :[dǝʇs puᄅ](https://youtu.be/jXeF1rMkpQw?t=103)<br>
 ƃuoɹʍ sᴉ ƃuᴉɥʇǝɯos ʇɐɥʇ lǝǝɟ :[dǝʇs ʇsƖ](https://youtu.be/ax2bQOZy6Sc?t=80)<br>
 ɥʇnɹʇ ┴ ƃuᴉɥɔɐǝɹ ɟo ssǝɔoɹd ┴
