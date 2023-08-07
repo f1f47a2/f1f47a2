@@ -55,7 +55,7 @@ sɹǝɥʇo uɐɥʇ = > ɹ s🐜 ǝɯos ʇnq '= ɹ s🐜 ┴ llɐ llᴉɥ🐜 ┴
 <br><br><br>
 
 ƎƆIOHƆ ɐ sᴉ ƎƆN∀ɹONפI 'uoᴉʇɐɯɹoɟuᴉ ɟo ǝƃɐ ┴ uI - 
-[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ƎƆN∀ɹONפI](https://youtu.be/E7kYSvF8D-w) ɹ⅄ ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY) - ¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [Ǝ┴∀┴S](https://youtu.be/Sneo7yuIYFo) ┴ ʇɐɥM
+[ssǝupuᴉlq](https://youtu.be/38AYeNGjqg0) ɹ⅄ ⅋ [ƎƆN∀ɹONפI](https://youtu.be/E7kYSvF8D-w) ɹ⅄ ɟo [pǝɯɐɥsɐ](https://youtu.be/JDAuQtHIrPw) [ǝq](https://youtu.be/e8qmUV6PDGY) - ¿[sᴉ](https://youtu.be/FQKdAodINvY) [ʎllɐǝɹ](https://youtu.be/M2lbSox_13M) [ʎɹʇunoɔ](ttps://youtu.be/Sneo7yuIYFo) ɹ∩ ʇɐɥʍ ∩ [ʍoɥs](https://youtu.be/zuwW9IVwZ0U) ǝɯ ʇǝl
 
 
 <br><br><br>
