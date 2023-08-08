@@ -227,7 +227,9 @@ ENG-101
 - [TS](https://www.youtube.com/@traumscape) [mmo](https://www.youtube.com/@myersmusicofficial/) 
 - [EM](https://www.youtube.com/@ErgosMusic/) [SS](https://www.youtube.com/@Serenity_Session) [LMM](https://www.youtube.com/@Lovemotives/)
 - [WNJ](https://www.youtube.com/@whitenoisejack)
-- [Nora](https://www.youtube.com/@NoraSounds/) [SA1](https://www.youtube.com/@SpiritAwake1) [natac](https://www.youtube.com/@natureacoustics) [nebula](https://www.youtube.com/@Nebula-DD) [galaMS](https://www.youtube.com/@gaiamagicstudio/) [myswav](https://www.youtube.com/@MysticalWave-xb8eo) [DoB](https://www.youtube.com/@DayofBless/) []() []() []() []() []()
+- [Nora](https://www.youtube.com/@NoraSounds/) [SA1](https://www.youtube.com/@SpiritAwake1) [natac](https://www.youtube.com/@natureacoustics) [nebula](https://www.youtube.com/@Nebula-DD) [galaMS](https://www.youtube.com/@gaiamagicstudio/) 🔥 [myswav](https://www.youtube.com/@MysticalWave-xb8eo) [DoB](https://www.youtube.com/@DayofBless/)
+- [R4TW](https://www.youtube.com/@restforthewicked6842/) [EDyst](https://www.youtube.com/@EternalDystopiaMusic) [AAmb](https://www.youtube.com/@ArmchairAmbience) [ElAG](https://www.youtube.com/@ElArmanGee) [PrthuSAmb](https://www.youtube.com/@prometheusstudioambient) 🔥
+- [SWCR](https://www.youtube.com/@spacewavecr) [MYERS](https://www.youtube.com/@myersmusicofficial) [QAmb](https://www.youtube.com/@QuantumAmbience) [n3opk](https://www.youtube.com/@n3o_PnK) [MystW](https://www.youtube.com/@MysteryWaves-do8ex) 🔥 [Sillu](https://www.youtube.com/@sound_illusion)  [DarkAmbFq](https://www.youtube.com/@Dark.Ambient.Frequencies)  [EarLEch](https://www.youtube.com/@EarthsLastEchoes)  [TDarkW](https://www.youtube.com/@TheDarkWave7)  []() 
 <br><br><br><br><br>
 
 ### oʇʇoɯ
