@@ -283,6 +283,8 @@ pᴉdnʇs ɹ uǝɯ ǝsnɐɔǝq ʎzɐɹɔ ɹ uǝɯoʍ
 
 ƎƆIOHƆ ɐ sᴉ ƎƆN∀ɹONפI 'uoᴉʇɐɯɹoɟuᴉ ɟo ǝƃɐ ǝɥʇ uI
 
+ǝlnɹ ǝɥʇ sᴉ 'suoᴉʇɐu puɐ sǝᴉʇɹɐd 'sdnoɹƃ uᴉ ʇnq - slɐnpᴉʌᴉpuᴉ uᴉ ǝɹɐɹ sᴉ ssǝupɐɯ
+
 ʎɹoǝɥʇ looɟ ɹǝʇɐǝɹƃ uo pǝsɐq ɹ sǝᴉɔuǝɹɹnɔoʇdʎɹɔ
 
 dooooɥʍ 'puoɔǝsoɹɔᴉɯ ɐ uᴉ oɹǝz ƃuᴉʞɔnɟ ᄅ oƃ llᴉʍ uᴉoɔʇᴉq
