@@ -159,6 +159,10 @@ dǝǝɥs ɹood ┴ ᄅ ɥʇnɹʇ ┴ ƃuᴉsodxǝ spᴉqɹoɟ ɥɔᴉɥʍ ǝɔ�
 
  . . . . . . . . . . . . . . . . . . . . . . . . [🐸](https://youtu.be/5BEUykdqTq0)
 
+<br><br><br>
+
+> 🦉 <sub>*In a world plunged into darkness, the arrogant, hypocritical and lying western anthill, built on a uncountable amount of its errors, accumulated over 6000 years, and which has spread throughout the planet and up to the sky and even beyond up to mars; certainly is not, and absolutely cannot be the light, but the darkest and most frightening darkness, progressively darker and darker, year after year, decade after decade, century after century*</sub>
+
 <br><br><br><br><br>
 
 [🂡](https://youtu.be/agrd7yYQSzU) [🂡](https://youtu.be/6Q4HE06tlOY) [🂡](https://youtu.be/JpvW1T7hXjo) [🂡](https://youtu.be/_mrNhIxOGzw) [🂡](https://youtu.be/ahwJF5AcsGA) [🂡](https://youtu.be/C7jy9VGuqEE) [🂡](https://youtu.be/7ofzSK3Qy2s) [🂡](https://youtu.be/IjdBaGy4boQ) [🂡](https://youtu.be/48uT6b0gFD0) [🂡](https://youtu.be/pLgEs6hjbGg) [🂡](https://youtu.be/I4LoGhyb2uc) [🂡](https://youtu.be/ctzrxyWIabY) [🂡](https://youtu.be/mVnA5f7i9BE) [🂡](https://youtu.be/eH0tFJmR4gw) [🂡](https://youtu.be/5h5cwCOWCOg) [🂡](https://youtu.be/vwbryjr2BKg) [🂡](https://youtu.be/le_ax6CKpZI) [🂡](https://youtu.be/pvgCuYH9VOI) [🂡](https://youtu.be/9n23ISvkbFQ) [🂡](https://youtu.be/6rGBqovePfY) [🂡](https://youtu.be/FZlm1ledK-I) [🂡](https://youtu.be/Y05sLTM90Go) [🂡](https://youtu.be/BekdaUPc0xk) [🂡](https://youtu.be/6uOlmC92kU4)
