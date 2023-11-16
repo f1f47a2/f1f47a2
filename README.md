@@ -1,18 +1,11 @@
 ### Hi [👋](https://github.com/f1f47a2/f1f47a2/blob/main/hi.md)
 
-<br><br>
+<br>
+
 ### 🤵 about me:
   - I'm skilled in the art of war and military tactics, Sir! [👑🏰](https://youtu.be/NAErBJlDNLc?t=104)
 
-<br><br>
-
-### Table of Contents
-
-  - [AWESOME XRP 👉](https://github.com/f1f47a23/AWESOME)
-
-<sub>*The more you f@gk around, the more you find out*</sub>
-<br><br>
-
+<br>
 
 ### activity
 
