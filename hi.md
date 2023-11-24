@@ -192,9 +192,9 @@ ENG-101
 [🅘 🅗🅥 🅐 🅓🅡🅔🅐🅜](https://youtu.be/65xLByzT1l0) [ǝsdɐlloɔ](https://youtu.be/6QzDZ1mWS-U) [spᴉɯɐɹʎd](https://youtu.be/OwXV_BkS0bM) [┴](https://youtu.be/8bh8lRjn-DU) [ǝǝs](https://youtu.be/1qSD7eEK9og) [ᄅ](https://youtu.be/fQ0OsspFhWg) [+](https://youtu.be/NRJbbE11LNQ) [+](https://youtu.be/b_ZVRw5to14) [+](https://youtu.be/JUHhdD9ivKc) [+](https://youtu.be/60s-2hT-3Ok) [+](https://youtu.be/Ac-yUvhAxGo) [![Image](https://github.com/f1f47a2/f1f47a2/blob/main/img/TheAmbientalistBetelgeuse.jpg)](https://youtu.be/TNqFV7LrG7U)
 <br><br><br>
 
-<sub>*ƃuᴉɯoɔ sǝɔǝᴉd ┴ ɥʇᴉʍ ɔᴉɐsoɯ ┴ ǝʇǝldɯoɔ ⅋ sɹǝʍsuɐ ┴ ǝʌᴉǝɔǝɹ* :[dǝʇs pɹƐ](https://youtu.be/JB6Fsl0yV2A?t=24)<br>
-*uǝʇsᴉl 'uᴉ ǝunʇ ⅋ suoᴉʇsǝnb ┴ ɟlǝsɹʎ ʞsɐ 'ʞuᴉɥʇ* :[dǝʇs puᄅ](https://youtu.be/jXeF1rMkpQw?t=103)<br>
-*ƃuoɹʍ sᴉ ƃuᴉɥʇǝɯos ʇɐɥʇ lǝǝɟ* :[dǝʇs ʇsƖ](https://youtu.be/ax2bQOZy6Sc?t=80)<br>
+<sub>*ƃuᴉɯoɔ sǝɔǝᴉd ┴ ɥʇᴉʍ [ɔᴉɐsoɯ](https://youtu.be/4cWKAAHUhfA) ┴ ǝʇǝldɯoɔ ⅋ sɹǝʍsuɐ ┴ ǝʌᴉǝɔǝɹ* :[dǝʇs pɹƐ](https://youtu.be/JB6Fsl0yV2A?t=24)<br>
+*[uǝʇsᴉl](https://youtu.be/bRjwS0_6ap0?si=ozxjU3g7zISBdzT0) 'uᴉ ǝunʇ ⅋ suoᴉʇsǝnb ┴ ɟlǝsɹʎ ʞsɐ 'ʞuᴉɥʇ* :[dǝʇs puᄅ](https://youtu.be/jXeF1rMkpQw?t=103)<br>
+*[ƃuoɹʍ](https://youtu.be/Z9yrFb1tHhA) sᴉ ƃuᴉɥʇǝɯos ʇɐɥʇ lǝǝɟ* :[dǝʇs ʇsƖ](https://youtu.be/ax2bQOZy6Sc?t=80)<br>
 ***ɥʇnɹʇ ┴ ƃuᴉɥɔɐǝɹ ɟo ssǝɔoɹd ┴***</sub>
 
 <br><br><br><br>
