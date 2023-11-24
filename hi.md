@@ -193,7 +193,7 @@ ENG-101
 <br><br><br>
 
 <sub>*ƃuᴉɯoɔ sǝɔǝᴉd ┴ ɥʇᴉʍ [ɔᴉɐsoɯ](https://youtu.be/4cWKAAHUhfA) ┴ ǝʇǝldɯoɔ ⅋ sɹǝʍsuɐ ┴ ǝʌᴉǝɔǝɹ* :[dǝʇs pɹƐ](https://youtu.be/JB6Fsl0yV2A?t=24)<br>
-*[uǝʇsᴉl](https://youtu.be/bRjwS0_6ap0?si=ozxjU3g7zISBdzT0) 'uᴉ ǝunʇ ⅋ suoᴉʇsǝnb ┴ ɟlǝsɹʎ ʞsɐ 'ʞuᴉɥʇ* :[dǝʇs puᄅ](https://youtu.be/jXeF1rMkpQw?t=103)<br>
+*[uǝʇsᴉl](https://youtu.be/bRjwS0_6ap0) 'uᴉ ǝunʇ ⅋ suoᴉʇsǝnb ┴ ɟlǝsɹʎ ʞsɐ 'ʞuᴉɥʇ* :[dǝʇs puᄅ](https://youtu.be/jXeF1rMkpQw?t=103)<br>
 *[ƃuoɹʍ](https://youtu.be/Z9yrFb1tHhA) sᴉ ƃuᴉɥʇǝɯos ʇɐɥʇ lǝǝɟ* :[dǝʇs ʇsƖ](https://youtu.be/ax2bQOZy6Sc?t=80)<br>
 ***ɥʇnɹʇ ┴ ƃuᴉɥɔɐǝɹ ɟo ssǝɔoɹd ┴***</sub>
 
